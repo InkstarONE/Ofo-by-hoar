@@ -1,3 +1,3 @@
 # Ofo-by-hoar
 
-![avatar](http://baidu.com/pic/doge.pnghttp://p1.pstatp.com/large/pgc-image/1536411114691c12a542c7d）
+![avatar](https://img-blog.csdn.net/20180822155309610?watermark/2/text/aHR0cHM6Ly9ibG9nLmNzZG4ubmV0L3FxXzIxODU2NTIx/font/5a6L5L2T/fontsize/400/fill/I0JBQkFCMA==/dissolve/70）
